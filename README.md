@@ -1,1 +1,1 @@
-I magnetroned my smartphone  for one second amplifying emissions, it now is a universal communicator, given preexisting 
+I magnetroned my smartphone  for one second amplifying emissions, it now is a universal communicator, given preexisting. it did terminal text to device audio emissions of any device. I can just do it with my mind now. 
